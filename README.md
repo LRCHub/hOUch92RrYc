@@ -1,0 +1,43 @@
+# Good Neighbours – Home
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+It's a light relief
+rom a bad habit
+It's my mother's cookin'
+when I can't have it
+It's the last train home
+from the day trippin'
+It's the place I go
+hen I start slipping
+Darling won't you take me home?
+Send me shivers somewhere
+I used to go
+Wrap my name across your mouth
+When I let my feelings out
+Darling won't you take me home?
+Yeah, won't you take me
+Ho—, o-o-o, o-o, o-o-o
+Tell me does your mother know
+I still love you, head to toe
+Yeah, like the back of my car
+on a sunny day
+You're the song on the radio
+like everyday
+You're the words
+in my soul that I wanna say
+That I wanna say
+Won't you let me say?
+Won't you take me home?
+Send me shivers somewhere
+I used to go
+Wrap my name across your mouth
+When I let my feelings down
+Darling won't you take me home?
+Yeah, won't you take me
+Ho—, o-o-o, o-o, o-o-o
+Ho—, o-o-o, o-o, o-o-o
+Ho—, o-o-o, o-o, o-o-o
+Ho—, o-o-o, o-o, o-o-o
+```
